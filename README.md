@@ -47,7 +47,7 @@ The last invoice of €15K would then be paid when the project was completed.
 
 InterCons did the work on the stairs and we paid the €35K in **April 2022**
 
-After this, there was a periods where InterCons did minor work towards finishing the project. 
+After this, there was a period where InterCons did minor work towards finishing the project. 
 At each point, we had to point out every detail that needed doing, but slow progress was made.
 
 In the meantime though, problems had started to appear in the work that had been done. 
