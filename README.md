@@ -11,7 +11,7 @@ The complaint has three parts:
 Tasks: 
 
 - [x] Basic timeline outline.
-- [ ]Gather more detailed photographs and documents.
+- [ ] Gather more detailed photographs and documents.
 - [ ] Provide translations in Spanish and Catalan. 
 
 
