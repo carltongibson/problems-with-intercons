@@ -10,9 +10,9 @@ The complaint has three parts:
 
 Tasks: 
 
-- Basic timeline outline.
-- Gather more detailed photographs and documents.
-- Provide translations in Spanish and Catalan. 
+- [x] Basic timeline outline.
+- [ ]Gather more detailed photographs and documents.
+- [ ] Provide translations in Spanish and Catalan. 
 
 
 ## Timeline outline
