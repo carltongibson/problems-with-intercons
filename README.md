@@ -34,6 +34,8 @@ We were happy to pay this but raised questions about the quality issues, and wha
 
 On the week beginning the **10th January 2022** InterCons promised that the stairs would be done before the end of January. (My wife's family were coming the weekend of the 4th-6th February, and we were keen to have the stairs resolved so they could see the new house as it was meant to be.) By the end of January, the work on the stairs was not even begun.  
 
+At this point, we're two months late, there are serious problems, and InterCons are not doing the work they say they will. Nonetheless, we still wanted to believe them, and still wanted the work to be completed well. 
+
 On the **14th Feb 2022** we can to an agreement with InterCons that they would resolve the issue with the stairs in the following two weeks, and we paid them the €65K. 
 On the very next day, instead of doing the work they had provised, InterCons removed their entire team from the project, without any communication. 
 
