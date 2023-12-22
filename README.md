@@ -60,7 +60,7 @@ fixed, but as time went by it became increasingly obvious that InterCons were no
 InterCons had failed to resolve issues that had been **first identified in December 2021** — problems that had been immediately apparent. 
 
 Once the cracking in the floor reached a certain point, they declared they were going to fix it.
-The final payment of €15K remained pending throughout this period.
+The final payment of €15K remained pending throughout this period, representing about 2% of the total project cost. 
 It seems clear they've decided that cost of making good the work isn't worth that. 
 Hence the need to compile this case. 
 
