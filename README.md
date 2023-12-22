@@ -34,22 +34,28 @@ We were happy to pay this but raised questions about the quality issues, and wha
 
 On the **14th Feb 2022** we can to an agreement with InterCons that they would resolve the issue with the stairs in the following two weeks, and we paid them the €65K. 
 On the very next day, instead of doing the work they had provised, InterCons removed their entire team from the project, without any communication. 
+
 This was the point at which **all trust was destroyed**, InterCons had straight-forwardly lied, after we had funded their work for a full year. 
 
-In March InterCons issued the next invoice for €35K. They were still not doing any work, and we refused to pay. 
+In **March 2022** InterCons issued the next invoice for €35K. They were still not doing any work, and we refused to pay. 
 After another month of stalling, we agreed that InterCons would do the necessary work on the stair, and at that point we would pay the €35K. 
 The last invoice of €15K would then be paid when the project was completed. 
 
-InterCons did the work on the stairs and we paid the €35K. 
+InterCons did the work on the stairs and we paid the €35K in **April 2022**
 
 After this, there was a periods where InterCons did minor work towards finishing the project. 
 At each point, we had to point out every detail that needed doing, but slow progress was made.
 
-In the meantime though, problems had started to appear in the work that had been done. To be detailed, but the major problem was cracking appearing in the flooring throughout the house. 
+In the meantime though, problems had started to appear in the work that had been done. 
+To be detailed, but the major problem was cracking appearing in the flooring throughout the house. 
 This in addition to some remaining larger issues that InterCons had chosen to not deal with. 
 
-As time went by it became increasingly obvious that InterCons were not going to finish the work. 
-Once the cracking in the floor reached a certain point, they declared they were going to fix it. 
+In the **Autumn of 2022** and into **2023** some further attempts (to be detailed) were made to get the problems 
+fixed, but as time went by it became increasingly obvious that InterCons were not going to finish the work. 
+
+InterCons had failed to resolve issues that had been **first identified in December 2021** — problems that had been immediately apparent. 
+
+Once the cracking in the floor reached a certain point, they declared they were going to fix it.
 The final payment of €15K remained pending throughout this period.
 It seems clear they've decided that cost of making good the work isn't worth that. 
 Hence the need to compile this case. 
