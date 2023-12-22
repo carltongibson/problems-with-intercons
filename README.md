@@ -32,7 +32,7 @@ At this point we had paid over €550K (again, all in full, and in a timely mann
 
 We were happy to pay this but raised questions about the quality issues, and what the timeline for resolving them was. InterCons did various minor task whilst the discussion went on, but made no steps to address the major issues, particulary the stairs. 
 
-On the week beginning the **10th January 2022** InterCons promised that the stairs would be done before the end of January. (My wife's family were coming the weekend of the 4th-6th February, and we were keen to have the stairs resolved so they could see the new house as it was meant to be.) By the end of January, the work on the stair was not even begun.  
+On the week beginning the **10th January 2022** InterCons promised that the stairs would be done before the end of January. (My wife's family were coming the weekend of the 4th-6th February, and we were keen to have the stairs resolved so they could see the new house as it was meant to be.) By the end of January, the work on the stairs was not even begun.  
 
 On the **14th Feb 2022** we can to an agreement with InterCons that they would resolve the issue with the stairs in the following two weeks, and we paid them the €65K. 
 On the very next day, instead of doing the work they had provised, InterCons removed their entire team from the project, without any communication. 
