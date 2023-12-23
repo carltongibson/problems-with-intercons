@@ -36,7 +36,7 @@ On the week beginning the **10th January 2022** InterCons promised that the stai
 
 At this point, we're two months late, there are serious problems, and InterCons are not doing the work they say they will. Nonetheless, we still wanted to believe them, and still wanted the work to be completed well. 
 
-On the **14th Feb 2022** we can to an agreement with InterCons that they would resolve the issue with the stairs in the following two weeks, and we paid them the €65K. 
+On the **14th Feb 2022** we came to an agreement with InterCons that they would resolve the issue with the stairs in the following two weeks, and we paid them the €65K. 
 On the very next day, instead of doing the work they had provised, InterCons removed their entire team from the project, without any communication. 
 
 This was the point at which **all trust was destroyed**, InterCons had straight-forwardly lied, after we had funded their work for a full year. 
